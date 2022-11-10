@@ -7,3 +7,4 @@ atau makan olive chicken pun okay
 yaudah lah intinya pulang aja dulu
 habis itu baru keliling cari makan
 apapun yang menarik itu yang kita makan
+yaudah see ya
